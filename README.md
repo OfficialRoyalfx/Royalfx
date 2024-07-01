@@ -1,4 +1,3 @@
-# Royalfx
-Forex Trading Academy which provides the lead way 
-Towards profitable trading among young Adults. 
-
+# King Samuel 
+Data storyteller | Analyst by day, writer by night | Uncovering insights and weaving words | Join me on a journey of data-driven discoveries.
+#RoyalScribe #Royalfx
